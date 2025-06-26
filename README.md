@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @Nagamani1910
 - 👀 I’m interested in designing 
+- I'm interested in teaching(mathematics)
+- 
